@@ -7,6 +7,13 @@
 ---
 
 
+### **LIVE📡**
+
+[link](https://www.bilibili.com/video/BV1tE41157rC/)
+
+<iframe src="//player.bilibili.com/player.html?aid=95818381&bvid=BV1tE41157rC&cid=163580643&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+
 ### **publication📣**
 ```
 近几年，曲解很多。
