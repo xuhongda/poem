@@ -7,13 +7,11 @@
 ---
 
 
-### **LIVE📡**
+### **LIVE TV 📡**
 
 [彩虹](https://www.bilibili.com/video/BV1tE41157rC/)
 
-<html>
-<iframe src="//player.bilibili.com/player.html?aid=95818381&bvid=BV1tE41157rC&cid=163580643&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
-</html>
+
 
 ---
 
