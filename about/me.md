@@ -25,18 +25,17 @@
 
 
 ```
-![Image text](https://pic.rmb.bdstatic.com/bjh/b6e223f450e122223bbc8e4a939fb28a.png)
+
 ---
 
 ### **update share**
-
+![Image text](https://pic.rmb.bdstatic.com/bjh/b6e223f450e122223bbc8e4a939fb28a.png)
 <html>
 
 <span style="color: #d4bfff">
 
 is so cool~
 ~SpaceX有两个回收火箭的海上浮动着陆平台（Autonomous spaceport drone ship）一个叫Just Read the Instructions; 另一个叫Of Course I still Love You，这两个名字均出自苏格兰著名作家，斯特灵大学校友（曾被时代杂志评为1945年以来最伟大的50位英国小说家之一）伊恩班克斯的科幻小说The Player of Games 《游戏玩家》，在小说中，这是两艘有人工智能控制的宇宙飞船；
-
 
      need to do something,
      so it's always been
