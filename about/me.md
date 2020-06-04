@@ -41,7 +41,7 @@ is so cool~
      need to do something,
      so it's always been
      
-     潘婷洗发水感觉还可以，看来还是得信赖宝洁和联合利华😘
+     潘婷洗发水感觉还可以，看来还是得信赖宝洁和联合利华😘洗发水里最失望的是施华蔻
 </span>
 
 </html>
@@ -51,11 +51,15 @@ is so cool~
 
 ### **look,look,look**
 
-你大概可以从我以下照片来从人群中分辨我☺，e,e,e 当然这是大学时期拍摄的照片😅，young~forever young。
+你大概可以从我以下照片来从人群中分辨我，e,e,e 😅。
+
+![Image text](https://pic.rmb.bdstatic.com/bjh/0a8626210d2baf940496ec13e919154f.jpeg@s_0,w_1242)
 
 ![Image text](https://pic.rmb.bdstatic.com/bjh/dfc3b26696f5f7e4e13efbded2b3f34b.jpeg@s_0,w_2000)
 
 ![Image text](https://pic.rmb.bdstatic.com/bjh/bfb30b1c69499abc9e7f7f3e2d4b50e6.jpeg)
+
+
 **（请勿随意分发）**
 ---
 
