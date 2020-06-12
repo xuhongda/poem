@@ -11,7 +11,6 @@
 
 点击👉[彩虹-印象中的回忆](https://www.bilibili.com/video/BV1tE41157rC/)[——所相信的事情是否为真实]
 
-点击👉[江西 五一 假期](https://www.bilibili.com/video/BV1kk4y16796/)[——记录]
 
 
 ---
@@ -34,13 +33,10 @@
 
 <span style="color: #d4bfff">
 
-is so cool~
-~SpaceX有两个回收火箭的海上浮动着陆平台（Autonomous spaceport drone ship）一个叫Just Read the Instructions; 另一个叫Of Course I still Love You，这两个名字均出自苏格兰著名作家，斯特灵大学校友（曾被时代杂志评为1945年以来最伟大的50位英国小说家之一）伊恩班克斯的科幻小说The Player of Games 《游戏玩家》，在小说中，这是两艘有人工智能控制的宇宙飞船；
-
-     need to do something,
-     so it's always been
-     
-     潘婷洗发水感觉还可以，看来还是得信赖宝洁和联合利华😘洗发水里最失望的是施华蔻
+   
+     never
+    
+    
 </span>
 
 </html>
@@ -64,13 +60,13 @@ is so cool~
 
 ### **are you from** 
 
-江西，enough ，，，❤
+ earth，enough ，，，❤
 
 ---
    
 ### what do you like 
 
-  相对于喜欢什么，我们更容易知道自己对什么不感兴趣 😝 
+  相对于喜欢什么，我们更容易知道自己对什么不感兴趣 
   
 
 ---
@@ -84,7 +80,7 @@ is so cool~
 
 ### **That's not all**
 
-   这些只是个粗略介绍，但或许足够形成初步了解👌。但是，人总是愿意相信自己相信的事情，你也大可不必把这些当成绝对的事情。
+   略，你也大可不必把这些当成绝对的事情。
 
 
 ---
