@@ -46,9 +46,7 @@
 
 ### **look,look,look**
 
-你大概可以从我以下照片来从人群中分辨我，e,e,e 😅。
 
-![Image text](https://pic.rmb.bdstatic.com/bjh/0a8626210d2baf940496ec13e919154f.jpeg@s_0,w_1242)
 
 ![Image text](https://pic.rmb.bdstatic.com/bjh/dfc3b26696f5f7e4e13efbded2b3f34b.jpeg@s_0,w_2000)
 
